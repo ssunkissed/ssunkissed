@@ -11,7 +11,7 @@
 ╰
 
 ╭
-♡ I'm a minor. (15 to be exact iwc)
+♡ I'm a minor. (15 to be exact, iwc)
 ╰
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
