@@ -55,6 +55,7 @@
 ♡ thx for reading!! waves
 ╰
 
+« ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
 ![2aed715b-f1e6-4ab8-a661-91328da88742](https://github.com/user-attachments/assets/43c9f030-7b03-4237-9dc7-df3ede07a8a5)
 
