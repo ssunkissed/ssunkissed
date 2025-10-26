@@ -44,11 +44,11 @@
 # - EXTRA ♡
 
 ╭
-♡ Fandoms: Forsaken, crk, Sewh, die of death, Let him go, waapp, pizza game, yandere sim + more
+♡ Fandoms: Forsaken, crk, Sewh, die of death, Let him go, waapp,mm12, roblox admins, pizza game, yandere sim + more
 ╰
 
 ╭
-♡ I'm a multishipper, but my mains are: Paycheck/pizzaburger, 1xdoe, azuretime, adminvirus, doublefedora, ichance
+♡ I'm a multishipper, but my mains are: Paycheck/pizzaburger, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped
 ╰
 
 ╭
