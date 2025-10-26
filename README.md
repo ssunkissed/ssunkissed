@@ -48,7 +48,7 @@
 ╰
 
 ╭
-♡ I'm a multishipper, but my mains are: Paycheck/pizzaburger, 1xdoe, adminvirus, doublefedora, ichance
+♡ I'm a multishipper, but my mains are: Paycheck/pizzaburger, 1xdoe, azuretime, adminvirus, doublefedora, ichance
 ╰
 
 ╭
