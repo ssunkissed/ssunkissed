@@ -1,9 +1,9 @@
-# - ME!! ♡
+# - ME !! ♡
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
 ╭
-♡ Im fine with any pronouns, I mostly prefer being called they/them.
+♡ Im fine with any pronouns, I mostly prefer going by they/them
 ╰
 
 ╭
