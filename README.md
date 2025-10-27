@@ -33,11 +33,11 @@
 ╰
 
 ╭
-♡ I do lots of weird jokes sometimes haha, if they make you uncomfortable tell me and i'll stop don't harass me pls !!
+♡ I do lots of weird jokes sometimes haha, if they make you uncomfortable tell me and i'll stop !!
 ╰
 
 ╭
-♡ half of my skins are jokes don't harass, don't take them serious plspls
+♡ half of my skins are jokes don't take them serious plspls
 ╰
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
