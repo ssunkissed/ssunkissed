@@ -7,7 +7,7 @@
 ╰
 
 ╭
-♡ I may be quiet and akward at first but if I get comfortable around you i'll be freaky and yap alot !!
+♡ I may be quiet and akward at first but if I get comfortable around you i'll be freaky and yap alot !! , I have trust issues.
 ╰
 
 ╭
