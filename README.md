@@ -2,7 +2,7 @@
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
-# 💌 "Despite everything, its still you."
+💌 "Despite everything, its still you."
 
 ╭
 ♡ Im fine with any pronouns, I mostly prefer going by they/them
