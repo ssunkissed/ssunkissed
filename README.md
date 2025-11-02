@@ -1,9 +1,6 @@
 # - ME !! ♡
-
+💌 "The sunset falls, but the heart still waits for dawn."
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
-
-💌 "Despite everything, its still you."
-
 ╭
 ♡ Im fine with any pronouns, I mostly prefer going by they/them
 ╰
