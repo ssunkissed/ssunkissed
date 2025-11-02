@@ -2,6 +2,8 @@
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
+# 💌 "Despite everything, its still you."
+
 ╭
 ♡ Im fine with any pronouns, I mostly prefer going by they/them
 ╰
@@ -48,7 +50,7 @@
 ╰
 
 ╭
-♡ I'm a multishipper, but my mains are: Paycheck/pizzadebt/pizzaburger, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped, frozendebt
+♡ I'm a multishipper, but my mains are: Paycheck/pizzadebt/pizzaburger, guestnoob, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped, frozendebt
 ╰
 
 ╭
