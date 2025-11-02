@@ -1,5 +1,5 @@
 # - ME !! ♡
-💌 "The sunset falls, but the heart still waits for the dawn."
+💌 "Like rain, I fall for you."
 
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
