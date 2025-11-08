@@ -3,24 +3,29 @@
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
 
+![Elliot twitter header_banner I made for myself !](https://github.com/user-attachments/assets/69928b6d-b95b-4c6e-9b5c-df01e5a96de8)
+
+
+
+
 જ⁀➴ ♡ Im fine with any pronouns, I mostly prefer going by they/them
 
 
 
-˚₊·—̳͟͞͞♡ I may be quiet and akward at first but if I get comfortable around you i'll be freaky and yap alot !! , I have trust issues.
+˚₊·—̳͟͞͞♡ I may be quiet and akward at first but if I get comfortable I'll yap alot!!
 
 
 
-જ⁀➴ ♡ I'm a minor. (15 to be exact, iwc)
+જ⁀➴ ♡ I'm a minor. / iwc unless friend
 
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
 
-જ⁀➴ ♡ 🟢 - Online and will respond 90% of the time
+જ⁀➴ ♡ 🟢 - Online and will respond most of the time
 
 
-˚₊·—̳͟͞͞♡ ⛔️/🌙 - offtab, doing something else w2i
+⊱  ۫ ׅ ✧ ⛔️/🌙 - offtab, doing something else w2i
 
 
 
@@ -29,15 +34,13 @@
 # - !DNI!
 
 
-જ⁀➴ ♡ Basic dni, just don't be weird and problematic. 
+જ⁀➴ ♡ basic dni, just don't be weird and problematic 
 
 
 
-જ˚₊·—̳͟͞͞♡ I do lots of weird jokes sometimes haha, if they make you uncomfortable tell me and i'll stop !!
+˚₊·—̳͟͞͞♡  proshippers / incest dnidnidni yall are weird get away
 
-
-
-જ⁀➴ ♡ half of my skins are jokes don't take them serious plspls
+https://de.pinterest.com/pin/165085142586561775/
 
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
@@ -48,7 +51,7 @@
 
 
 
-˚₊·—̳͟͞͞♡ I'm a multishipper, but my mains are: Paycheck/pizzadebt/pizzaburger, guestnoob, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped, frozendebt
+⊱  ۫ ׅ ✧ I'm a multishipper, but my mains are: Paycheck/pizzadebt, noob666, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped, frozendebt
 
 
 
@@ -57,7 +60,8 @@
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
-![2aed715b-f1e6-4ab8-a661-91328da88742](https://github.com/user-attachments/assets/43c9f030-7b03-4237-9dc7-df3ede07a8a5)
+
+![matching chance and elliot layout 1_3](https://github.com/user-attachments/assets/8da336b2-5bbc-4c44-98db-0acfb1937e5d)
 
 
 
