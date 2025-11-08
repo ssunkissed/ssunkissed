@@ -2,58 +2,58 @@
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
-╭
-♡ Im fine with any pronouns, I mostly prefer going by they/them
-╰
 
-╭
-♡ I may be quiet and akward at first but if I get comfortable around you i'll be freaky and yap alot !! , I have trust issues.
-╰
+જ⁀➴ ♡ Im fine with any pronouns, I mostly prefer going by they/them
 
-╭
-♡ I'm a minor. (15 to be exact, iwc)
-╰
+
+
+જ⁀➴ ♡ I may be quiet and akward at first but if I get comfortable around you i'll be freaky and yap alot !! , I have trust issues.
+
+
+
+જ⁀➴ ♡ I'm a minor. (15 to be exact, iwc)
+
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
-╭
-♡ 🟢 - Online and will respond 90% of the time
-╰
 
-╭
-♡ ⛔️/🌙 - offtab, doing something else w2i
-╰
+જ⁀➴ ♡ 🟢 - Online and will respond 90% of the time
+
+
+જ⁀➴ ♡⛔️/🌙 - offtab, doing something else w2i
+
+
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
 # - !DNI!
 
-╭
-♡ Basic dni, just don't be weird and problematic. 
-╰
 
-╭
-♡ I do lots of weird jokes sometimes haha, if they make you uncomfortable tell me and i'll stop !!
-╰
+જ⁀➴ ♡ Basic dni, just don't be weird and problematic. 
 
-╭
-♡ half of my skins are jokes don't take them serious plspls
-╰
+
+
+જ⁀➴ ♡ I do lots of weird jokes sometimes haha, if they make you uncomfortable tell me and i'll stop !!
+
+
+
+જ⁀➴ ♡ half of my skins are jokes don't take them serious plspls
+
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 # - EXTRA ♡
 
-╭
-♡ Fandoms: Forsaken, crk, Sewh, die of death, Let him go, waapp, mm12, roblox admins, pizza game, yandere sim + more
-╰
 
-╭
-♡ I'm a multishipper, but my mains are: Paycheck/pizzadebt/pizzaburger, guestnoob, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped, frozendebt
-╰
+જ⁀➴ ♡ Fandoms: Forsaken, crk, Sewh, die of death, Let him go, waapp, mm12, roblox admins, pizza game, yandere sim + more
 
-╭
-♡ thx for reading!! waves
-╰
+
+
+જ⁀➴ ♡ I'm a multishipper, but my mains are: Paycheck/pizzadebt/pizzaburger, guestnoob, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped, frozendebt
+
+
+
+જ⁀➴ ♡ thx for reading!! waves
+
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
