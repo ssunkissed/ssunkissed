@@ -7,7 +7,7 @@
 
 
 
-જ⁀➴ ♡ I may be quiet and akward at first but if I get comfortable around you i'll be freaky and yap alot !! , I have trust issues.
+˚₊·—̳͟͞͞♡ I may be quiet and akward at first but if I get comfortable around you i'll be freaky and yap alot !! , I have trust issues.
 
 
 
@@ -20,7 +20,7 @@
 જ⁀➴ ♡ 🟢 - Online and will respond 90% of the time
 
 
-જ⁀➴ ♡⛔️/🌙 - offtab, doing something else w2i
+˚₊·—̳͟͞͞♡ ⛔️/🌙 - offtab, doing something else w2i
 
 
 
@@ -33,7 +33,7 @@
 
 
 
-જ⁀➴ ♡ I do lots of weird jokes sometimes haha, if they make you uncomfortable tell me and i'll stop !!
+જ˚₊·—̳͟͞͞♡ I do lots of weird jokes sometimes haha, if they make you uncomfortable tell me and i'll stop !!
 
 
 
@@ -48,7 +48,7 @@
 
 
 
-જ⁀➴ ♡ I'm a multishipper, but my mains are: Paycheck/pizzadebt/pizzaburger, guestnoob, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped, frozendebt
+˚₊·—̳͟͞͞♡ I'm a multishipper, but my mains are: Paycheck/pizzadebt/pizzaburger, guestnoob, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped, frozendebt
 
 
 
