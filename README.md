@@ -3,7 +3,8 @@
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
 
-![Elliot twitter header_banner I made for myself !](https://github.com/user-attachments/assets/69928b6d-b95b-4c6e-9b5c-df01e5a96de8)
+
+<img width="666" height="375" alt="Elliot_twitter_header_banner_I_made_for_myself__-removebg-preview" src="https://github.com/user-attachments/assets/83c30357-ab11-4885-83fb-4b5095a32f1b" />
 
 
 
@@ -61,7 +62,8 @@ https://de.pinterest.com/pin/165085142586561775/
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
 
-![matching chance and elliot layout 1_3](https://github.com/user-attachments/assets/8da336b2-5bbc-4c44-98db-0acfb1937e5d)
+<img width="666" height="375" alt="matching_chance_and_elliot_layout_1_3-removebg-preview" src="https://github.com/user-attachments/assets/e0549557-1374-4d94-9151-cd65a15ec22e" />
+
 
 
 
