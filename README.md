@@ -50,7 +50,7 @@
 
 
 
-⊱  ۫ ׅ ✧ I'm a multishipper, but my mains are: Paycheck/pizzadebt, noob666, 1xdoe, azuretime, adminvirus, doublefedora, ichance, ellertrapped, frozendebt
+⊱  ۫ ׅ ✧ I'm a multishipper, but my mains are: Paycheck / pizzadebt / doublefedora / frozen debt / 1xdoe / adminvirus
 
 
 
