@@ -46,7 +46,7 @@
 # - EXTRA ♡
 
 
-જ⁀➴ ♡ Fandoms: Forsaken, crk, Sewh, die of death, Let him go, waapp, mm12, roblox admins, pizza game, yandere sim + more
+જ⁀➴ ♡ Fandoms: Forsaken, bad things, crk, Sewh, die of death, Let him go, waapp, mm12, roblox admins, pizza game,  + more
 
 
 
