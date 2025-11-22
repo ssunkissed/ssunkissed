@@ -7,7 +7,7 @@
 
 𓏲𝄢　𓈒　s᥆ᥣ / ᥒᥡ᥊ 
 
-5𝗍ᥱᥱᥒ     ︵︵ ![tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75](https://github.com/user-attachments/assets/61acc6d9-c148-48f2-a9b2-4c0c185ba011)
+5𝗍ᥱᥱᥒ ︵︵ ![tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75](https://github.com/user-attachments/assets/61acc6d9-c148-48f2-a9b2-4c0c185ba011)
 
 ᥲᥒᥡ ₒᵣ 𝗍һᥱᥡ 𝗍һᥱm)
 
