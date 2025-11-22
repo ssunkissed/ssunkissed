@@ -1,64 +1,41 @@
-# - me!! ♡
+# ![tumblr_2b358fb0ecb8f341cf1d29354515449b_ecc68cb6_75](https://github.com/user-attachments/assets/57199cd2-961d-4818-8629-f4de099cc2cf) - "Woah! That's some fast delivery!" 
 
-« ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
-
-
-
-<img width="666" height="375" alt="Elliot_twitter_header_banner_I_made_for_myself__-removebg-preview" src="https://github.com/user-attachments/assets/83c30357-ab11-4885-83fb-4b5095a32f1b" />
+<img width="700" height="200" alt="tumblr_0627f7bee6bc35216fe43c030fb3944c_2366906b_400" src="https://github.com/user-attachments/assets/acbaa7f0-b74f-4470-a544-5c3ef520491b" />
 
 
-જ⁀➴ ♡ Im fine with any pronouns, I mostly prefer going by they/them
+<img width="700" height="500" alt="tumblr_2c3f181d301ed3e8bab8a48ad6db3fa9_0cee0e7a_250" src="https://github.com/user-attachments/assets/c7296659-e9e5-4059-b646-9a0de9fd2b55" />
 
+𓏲𝄢　𓈒　s᥆ᥣ / ᥒᥡ᥊ 
 
+5𝗍ᥱᥱᥒ     ︵︵ ![tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75](https://github.com/user-attachments/assets/61acc6d9-c148-48f2-a9b2-4c0c185ba011)
 
-˚₊·—̳͟͞͞♡ I may be quiet and akward at first but if I get comfortable I'll yap alot!!
+ᥲᥒᥡ ₒᵣ 𝗍һᥱᥡ 𝗍һᥱm)
 
-
-
-જ⁀➴ ♡ I'm a minor. / iwc unless friend
-
-
-« ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
-
-
-જ⁀➴ ♡ 🟢 - Online and will respond most of the time
-
-
-⊱  ۫ ׅ ✧ ⛔️/🌙 - offtab, doing something else w2i
+![tumblr_bf64cc325fd55c591f5b1cf9489e1689_e0ce62cc_250](https://github.com/user-attachments/assets/273ea996-700e-4e37-a8b3-926fd15c0ad9)
 
 
 
-« ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
-
-# - !DNI!
-
-
-જ⁀➴ ♡ basic dni, just don't be weird and problematic 
-
-
-
-˚₊·—̳͟͞͞♡  proshippers / incest dnidnidni yall are weird get away
+![tumblr_c18670cc67e89b0a535f3563b364c217_90377b84_250](https://github.com/user-attachments/assets/e8e59b58-d64f-4f3b-a4cc-a2a5c58ee894) ![tumblr_7333bc9d270b0444d17a6744ef285bf5_454ee429_75](https://github.com/user-attachments/assets/3fcc3676-c12e-4dbe-9c8a-297dbc74e7c1)
 
 
 
 
-« ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
-# - EXTRA ♡
 
-
-જ⁀➴ ♡ Fandoms: Forsaken, bad things, crk, Sewh, die of death, Let him go, waapp, mm12, roblox admins, pizza game,  + more
+  
 
 
 
-⊱  ۫ ׅ ✧ I'm a multishipper, but my mains are: Paycheck / pizzadebt / doublefedora / frozen debt / 1xdoe / adminvirus
 
 
 
-જ⁀➴ ♡ thx for reading!! waves
 
 
-« ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
 
-<img width="666" height="375" alt="matching_chance_and_elliot_layout_1_3-removebg-preview" src="https://github.com/user-attachments/assets/e0549557-1374-4d94-9151-cd65a15ec22e" />
+
+
+
+
+　　
+
 
